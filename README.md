@@ -1,0 +1,1 @@
+# 2026-tpGame-EscapeDelParadigma-Paradigm-ticos
